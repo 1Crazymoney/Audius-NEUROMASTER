@@ -15,7 +15,10 @@
 
 *** 
 
-* Ai Voice Speech DEFINITION explaining Isochronic Technology - https://audius.co/neuromaster/neuromaster-isochronic-defintion-spoken-text-android.-270203
+* Ai Voice Speech DEFINITION explaining Isochronic Technology
+
+
+>  https://audius.co/neuromaster/neuromaster-isochronic-defintion-spoken-text-android.-270203
 
 
 > ===>
