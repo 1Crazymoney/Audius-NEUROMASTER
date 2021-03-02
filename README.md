@@ -1,2 +1,9 @@
 # Audius-NEUROMASTER
-Copyright Token Bridge Intergration to Audius https://audius.co/NEUROMASTER
+
+
+## Copyright Token Bridge Intergration to Cryptomusic Technology Audius 
+
+> https://audius.co/NEUROMASTER
+
+
+===>
